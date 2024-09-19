@@ -1,8 +1,8 @@
-- 👋 Hi, I’m @Ro_Calanguinho
+- 👋 Hi, I’m @Ro_Calanguinhe
 - 👀 I’m interested in geek culture in general
 - 🌱 I’m currently learning to program in high school
 - 💞️ I’m looking to collaborate on to my boyfriend
-- 📫 How to reach me? Twitter
+- 📫 How to reach me? Bluesky
 - 😄 Pronouns: He/him and they/them
 - ⚡ Fun fact: My English is not so good
 
