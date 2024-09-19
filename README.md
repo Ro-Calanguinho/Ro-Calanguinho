@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Ro_Calanguinhe
+- 👋 Hi, I’m @Ro_Calanguinho
 - 👀 I’m interested in geek culture in general
 - 🌱 I’m currently learning to program in high school
 - 💞️ I’m looking to collaborate on to my boyfriend
